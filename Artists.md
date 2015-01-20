@@ -29,10 +29,10 @@ Mark Rosewater, head designer of the Magic: The Gathering trading card game, cit
 Jenova Chen, lead designer at thatgamecompany, also cites "The Hero's Journey" as the primary inspiration for the game Journey for PlayStation 3.[19]
 See also
 
-    Bildungsroman
-    Otto Rank
-    The Golden Bough
-    The Iron Dream
-    Save The Cat! The Last Book on Screenwriting You'll Ever Need
-    Something Startling Happens: The 120 Story Beat Every Writer Needs To Know
-    The Seven Basic Plots
+- Bildungsroman
+- Otto Rank
+- The Golden Bough
+- The Iron Dream
+- Save The Cat! The Last Book on Screenwriting You'll Ever Need
+- Something Startling Happens: The 120 Story Beat Every Writer Needs To Know
+- The Seven Basic Plots
